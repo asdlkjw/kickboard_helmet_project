@@ -1,1 +1,0 @@
-# kickboard_helmet_project
